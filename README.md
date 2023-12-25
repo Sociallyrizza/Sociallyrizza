@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sociallyrizza
 - 👀 I’m interested in SALES AND KPI
 - 🌱 I’m currently UPSKILLING LANDING PAGES DESIGNS
-- 💞️ I’m looking to collaborate on FIIPROS AND ONLINE ENTREPRENEUR
+- 💞️ I’m looking to collaborate on FITPROS AND ONLINE ENTREPRENEUR
 - 📫 How to reach me at sKype live:.cid.dd468f3edefa1213
 Email:rizzalou2022@gmail.com
 WhatsApp: +639501704036
